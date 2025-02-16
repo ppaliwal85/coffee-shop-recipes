@@ -1,18 +1,18 @@
 # Hazelnut Syrup
 
-## Description: Enjoy the rich, nutty sophistication of hazelnut syrup in your coffee with this simple recipe
+## Description: Enjoy the rich, nutty sophistication of hazelnut syrup in your coffee with this simple recipe. Editing in coworker
 
 ## Ingredients
 
 - 1 cup sugar
 - 1 cup water
-- 1 cup of raw hazelnuts
+- Editing in coworker
 
 ## How to Make
 
 ### Step 1
 
-- Stirring occasionally, toast hazelnuts in a pan on medium heat for about 4 minutes or until aromatic.
+- editing in coworker
 
 ### Step 2
 
